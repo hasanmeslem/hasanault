@@ -71,7 +71,7 @@ Check out my **[GitHub Repositories](https://github.com/yourusername?tab=reposit
 
 ## 🤝 **Let's Connect!**  
 
-🌍 **LinkedIn:** [linkedin.com/in/hasanmeslem](https://linkedin.com/in/hasanmeslem)  https://www.linkedin.com/in/hasanmeslem/
+🌍 **LinkedIn:** [linkedin.com/in/hasanmeslem](https://linkedin.com/in/hasanmeslem)
 📬 **Email:** [hasanmeslem1@gmail.com](mailto:hasanmeslem1@gmail.com) 
 
 ---
